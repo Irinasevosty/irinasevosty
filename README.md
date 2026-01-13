@@ -1,4 +1,4 @@
-## Hi there 👋 I am Irina Sevostyanova
+## Hi there, I'm Irina Sevostyanova
 
 I’m Data Analyst
 
